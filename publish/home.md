@@ -16,6 +16,7 @@ To support - you can sign up for a monthly donation here: *Manglacharan Patreon
 
 ![SS_1](https://static.wixstatic.com/media/f03993_a0795493ada446a39d45bf1fe254bba8~mv2.jpg/v1/fill/w_452,h_450,al_c,q_80,usm_0.66_1.00_0.01,enc_auto/f03993_a0795493ada446a39d45bf1fe254bba8~mv2.jpg)
 
+
 **Mission Statement**
 [Manglacharan](http://www.manglacharan.com/) is dedicated to shedding light on the treasure trove of knowledge passed down by our ancestors, which has not yet been translated into English. For the past ten years [Manglacharan](http://www.manglacharan.com/) has provided translations of passages from important theological and historical texts within the Sikh tradition, namely from:  
 
