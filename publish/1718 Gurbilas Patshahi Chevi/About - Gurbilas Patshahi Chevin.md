@@ -1,0 +1,3 @@
+Gurbilas Patshahi Chevin is a historical narrative on the sixth Guru, Guru Hargobind. The text's creation is associated with the Giania Bunga in Amritsar, tied to Bhai Mani Singh Shahid. Many of the passages within the text insert Mani Singh Shahid into the dialogue (see [[Mani Singh & Daya Singh]]). 
+
+Scholars have given a large date range for its origin, some as early as 1718 and some as late as 1780, and even as late as 1843. The text is the only fully comprehensive history on the history of Guru Hargobind.

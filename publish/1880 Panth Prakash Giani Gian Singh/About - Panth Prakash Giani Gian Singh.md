@@ -1,0 +1,3 @@
+Written in 1880 by Giani Gian Singh, this Brajbhasha text is a reworking of Rattan Singh Bhangu's earlier Panth Prakash (~1809). Giani Gian Singh states his goal was to provide a narration of the community's coming to being while properly including the stories of Malwa Sikhs, which he felt were excluded by Bhangu. Furthermore, he states his reworking aims to be more poetically enjoyable, as he criticizes Bhangu's text as lacking poetic sophistication. This text has yet to be translated. 
+
+Included in this category are also select passages from the earlier Panth Prakash written by Bhangu. 

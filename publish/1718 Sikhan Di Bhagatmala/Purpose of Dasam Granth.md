@@ -1,0 +1,22 @@
+The passage below is from Sikhan Di Bhagatmala *1723* by Bhai Mani Singh Shaheed, wherein a question is asked as to the difference between Gurbani from Adi Guru Granth Sahib and Dasam Guru Granth Sahib. Bhai Mani Singh explains the difference as such:
+
+**ਤਾਂ ਸਿਖਾਂ ਭਾਈ ਮਨੀ ਸਿੰਘ ਜੀ ਹੋਰਾ ਥੀ ਪ੍ਰਸਨ ਕੀਤਾ ॥ ਜੋ ਆਦ ਬਾਣੀ ਜੋ ਹੋਈ ਹੈ ਸੋ ਸਭ ਭਗਤਿ ਮਈ ਹੈ ॥ ਤੇ ਸਾਹਿਬ ਦਸਵੇ ਪਾਤਸਾਹ ਜੋ ਬਾਣੀ ਕੀਤੀ ਹੈ ਸੋ ਜੁਧ ਮਈ ਹੈ ॥ ਕੈ ਇਸਤ੍ਰੀਆ ਦੇ ਚਰਿਤ੍ਰ ਹੈਨ ॥ ਇਸਦਾ ਸਿਧਾਂਤ ਕਿਉ ਕਰ ਸਮਝੀਐ ॥ ਤਾ ਭਾਈ ਜੀ ਜੈਸੇ ਅਰਜਨ ਜੁਧ ਦੇ ਸਮੇ ਸਸਤ੍ਰ ਛੋਡ ਬੈਠਾ ਸੀ ॥ ਤੇ ਮਹਾਰਾਜ ਉਸ ਨੂ ਗੀਤਾ ਦਾ ਉਪਦੇਸ ਕਰਕੈ ਫੇਰ ਚਰਨ ਆਸ੍ਰਮ ਦਾ ਜੁਧ ਦ੍ਰਿੜਾਇਆ ਸੀ ॥ ਤੈਸੇ ਹਿੰਦੂਆ ਨੇ ਹਿੰਸਾ ਧਰਮ ਜਾਣ ਕੈ ਸਸਤ੍ਰ ਛੋਡ ਦਿਤੇ ਹੈਨ ॥ ਤੇ ਮਲੇਛਾ ਸਸਤ੍ਰ ਪਕੜ ਲੀਤੇ ਹੈਸਨ ॥ ਤੇ ਸਸਤ੍ਰ ਦਾ ਬਲ ਕਰ ਪ੍ਰਿਥਮੀ ਦਾ ਰਾਜ ਭੋਗਦੇ ਹੈਸਨ ॥ ਤੇ ਹਿੰਦੂਆ ਵਿਚ ਭਗਤਿ ਹੋਵਣ ਨਹੀ ਸਨ ਦੇਦੇ ॥ ਤੇ ਸਾਹਿਬ ਖਾਲਸੇ ਜੀ ਨੂ ਰਘਵੰਸ ਜਾਣਕੈ ਫਿਰ ਰਾਜ ਲੈ ਦੇਵਣਾ ਸੀ ॥ ਤਾ ਜੁਧ ਮਈ ਬਾਣੀਆਂ ਉਚਾਰਨ ਕੀਤੀਆ ਹੈਨ ॥ ਤੇ ਸਸਤ੍ਰ ਦੀ ਵਿਦਿਆ ਦ੍ਰਿੜ ਕੀਤੀ ਹੈ ॥ ਤੇ ਗਿਆਨ ਦਾ ਉਪਦੇਸ ਕੀਤਾ ਹੈ ॥ ਜੋ ਸਰੀਰ ਤੁਸਾ ਝੂਠੇ ਜਾਣਨੇ ॥ ਤੇ ਤੁਸਾਡੇ ਵਰਨ ਦਾ ਧਰਮ ਹੈ ਜੁਧ ਕਰਨਾ ॥ ਤੇ ਜੇ ਗਿਆਨ ਦ੍ਰਿੜ ਕਰੋਗੇ ਤਾ ਜੀਵਨ ਮੁਕਤ ਹੋ ਕੇ ਵਿਚਰੋਗੇ ॥** 
+
+Then the Sikhs asked further questions to Bhai Mani Singh. "That which was written, the Gurbani within the Adi Granth, it is all of devotional nature, and, the Tenth Master's Gurbani is of a martial *yudh* nature, along with the stories about *deceitful* women. How are we to understand the reason *in regard to the difference*? 
+
+Then Bhai Mani Singh replied, "Just like when Arjuna was seated, having abandoned his weapons during the time of battle, and the Great King *Krishna* gave him the teaching of the Gita, and instilled within him the duty of his caste and life stage, of warfare. In the same way, Hindus *of this time* had recognized Dharam as being non-violent, and had abandoned their weapons. The Malecha's *barbarians* however had grasped firmly to their weapons, and with the power of their weapons they enjoyed kingdom on the world. They also did not let the Hindu's practice their devotional worship. The Master *Guru Gobind Singh* in recognizing his Khalsa as Raghuvanshi *descendants of Rama - warriors*, wanted to give sovereignty to them. For this reason *Guru Gobind Singh* recited this martial Gurbani and instilled within them Shastarvidiya *the Science of Weapons*, along with the teachings of spiritual wisdom, wherein one recognizes their body to be false. It was also established *being Raghuvanshi* that your duty was to wage war, and those who would instill within them spiritual wisdom, they would wander the world already liberated before death. 
+
+***…* ਜੈਸੇ ਘੋੜਾ ਕਿਸੇ ਬੂਟੇ ਥੀ ਝਕਦਾ ਹੈ ਤਾ ਕਾਰ ਸੁਆਰ ਉਸ ਨੂ ਬੂਟੇ ਥੀ ਤ੍ਰਿਪਾਇ ਕੈ ਲੈ ਜਾਦਾ ਹੈ ॥ ਤੈਸੇ ਹਿੰਦੂ ਸਸਤ੍ਰਾ ਥੀ ਭੈਮਾਨ ਹੈਸਨ ਜੁਧਮਈ ਬਾਣੀਆ ਤੇ ਗਿਆਨ ਉਪਦੇਸ ਕਰਕੈ ਇਨਾ ਥੀ ਜੁਧ ਕਰਵਾਇਆ ਹੈ ॥** 
+
+Just like when a horse, *at night* sees a tree *thinking it is a person and* is hesitant to go further, then the rider gives a pat to encourage the horse not to be afraid and carry forward. In the same way Hindus used to get scared when seeing weapons, and thus Guru Gobind Singh wrote this martial Gurbani, and instilled within them Wisdom *of their body being false*, and *made them unafraid* to wage war.
+
+**ਤੇ ਚਰਿਤ੍ਰ ਇਸ ਵਾਸਤੇ ਲਿਖੇ ਹੈਨ ਜੋ ਇਸਤ੍ਰੀਆ ਦੇ ਭੋਗਾ ਵਿਚ ਤੁਸਾ ਮਨ ਨਹੀ ਬੰਧਣਾ ॥ ਸਤਿਗੁਰਾਂ ਦੇ ਸਬਦ ਨਾਲ ਪ੍ਰੀਤ ਰਖਣੀ ॥ ਤੇ ਜੁਧ ਮਈ ਬਾਣੀ ਇਸ ਵਾਸਤੇ ਕੀਤੀ ਹੈ ॥ ਜੋ ਭਗਤਮਈ ਬਾਣੀ ਪੜਕੇ ਜੁਧ ਕਰ ਸਕਨਗੇ ॥ ਤੇ ਜੁਧ ਮਈ ਬਾਣੀ ਇਸਤ੍ਰੋਤ ਦੇਵੀ ਦੇ ਪੜਨਗੇ ॥ ਤਾ ਇਨਾ ਦੇ ਸਸਤ੍ਰਾ ਵਿਚ ਸਹਾਇਤਾ ਹੋਵੈਗੀ ॥ ਜਿਸ ਸਮੇ ਜੁਧ ਕਰਕੈ ਰਾਜ ਕਰਨਗੇ ਤਾ ਭਗਤਾ ਦੀ ਸੇਵਾ ਕਰਨਗੇ ॥ ਮਹਾਰਾਜ ਦੀ ਭਗਤਿ ਸਾਰੇ ਜਗਤਿ ਵਿਚ ਵਿਸਥੀਰਨ ਹੋਵੈਗੀ ॥ ਦਸਵੇ ਪਾਤਸਾਹ ਦਾ ਅਉਤਾਰ ਧਰਮ ਚਲਾਵਣ ਵਾਸਤੇ ਹੋਇਆ ਹੈ ॥ ਏਨਾ ਦੇ ਰਾਜ ਵਿਚ ਗਊਆ ਦੀ ਤੇ ਬ੍ਰਾਹਮਣਾ ਦੀ ਰਿਖਾ ਦੀ ਤੇ ਮੁਨੀਸਰਾ ਦੀ ਸਰਬ ਦੀ ਰਖਿਆ ਹੋਵੈਗੀ ॥** 
+
+And the Chritropakhyan was also written for this reason, such that one's mind would not be bound by the pleasures of women. One should have love for the words of the True Guru. So the martial natured Gurbani was recited for this reason. For those who can read the devotionally natured Gurbani and then wage war, and who recite the martial natured Gurbani, the praises of the Goddess, then their weapons will provide them protection. At that time when after completing war they take sovereignty, then they will be able to perform service to the devotees *of Bhagvan*. The Great King's devotion will be spread across the entire world. The Tenth Guru's arrival upon the earth was for the reason of establishing Dharam, and within this kingdom, the cows, Brahmins, Rishis, Muni's, and everyone will be protected. 
+
+  
+ਸਿਖਾਂ ਦੀ ਭਗਤਮਾਲਾ, ਪੰਨਾ 151, ਕ੍ਰਿਤ: ਭਾਈ ਮਨੀ ਸਿੰਘ (1718)  
+Sikhan Di Bhagatmala, page 151, author: Bhai Mani Singh (1718)
+
+[[Dasam]]
+![[bhagatmala3.png]]

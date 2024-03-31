@@ -1,0 +1,1 @@
+Written in 1776 by a descendent of Guru Amardas Bhalla, this text is a historical narrative on the ten Gurus in poetic metre. The text was created from the earlier prose account, Mahima Prakash Vartak, written in 1741. 

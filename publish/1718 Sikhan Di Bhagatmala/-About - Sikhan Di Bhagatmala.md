@@ -1,0 +1,5 @@
+Sikhān Dī Bhagatmālā is a text attributed to Bhai Mani Singh Shahid. Scholars have debated the date of completion of the text, but the broad consensus locates the text within the 18th century. The date of creation ranges from 1707 to as late as 1780. 
+
+Bhai Vir Singh has associated the text with Bhai Mani Singh, while recent scholars have pointed to evidence from the 19th century which attributes the authorship to Bhai Surat Singh of the Giānīā Bungā (Amritsar), the father of renown Bhai Sant Singh Giani. 
+
+Rattan Singh Jaggi asserts that the text must have been written between 1707-1734, stating that its possible Mani Singh had recited the stories and Surat Singh some years later wrote it down these stories (Jaggi 1995, 34). S. S. Padam writes that the text was likely written by Surat Singh in the last quarter of the 18th century. 

@@ -1,0 +1,3 @@
+Written in 1789 by Pandit Gulab Singh of the Nirmala order, this is Brajbhasha retelling of the Sanskrit Prabodhchandrodaya (11th cen) by Kishan Mishra. The original Sanskrit text held significant importance within Advaita Vedānta circles since its inception. The text details a battle between vices and virtues, lead by the king Vivek (discernment) against the enemy Moh (attachment/illusion). 
+
+Today Gulab Singh's text continues to be read within various Sikh sampradayas, including Nirmalas, Udasis, and the Damdami Taksal. 
