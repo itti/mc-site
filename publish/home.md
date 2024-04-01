@@ -20,7 +20,7 @@ To support - you can sign up for a monthly donation here: *Manglacharan Patreon
 **Mission Statement**
 [Manglacharan](http://www.manglacharan.com/) is dedicated to shedding light on the treasure trove of knowledge passed down by our ancestors, which has not yet been translated into English. For the past ten years [Manglacharan](http://www.manglacharan.com/) has provided translations of passages from important theological and historical texts within the Sikh tradition, namely from:  
 
-
+test
 - The writings of Guru Gobind Singh; 
 	- **Dasam Guru Granth Sahib**,
 	- **Sarbloh Granth**,
