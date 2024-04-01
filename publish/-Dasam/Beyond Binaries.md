@@ -6,7 +6,7 @@ In front of them, who is a Hindu or a Turk?"
 
 - Guru Gobind Singh, Chaubis Avatar, verse 19 
 
-Image: Bhai Mani Singh Shahid's manuscript of [[Adi]] & [[Dasam]] Granth
+Image: Bhai Mani Singh Shahid's manuscript of [[Adi Guru Granth Sahib/Adi]] & [[PUBLISHED/publish/-Dasam/Dasam]] Granth
 
 ![[binaries.jpeg]]
 

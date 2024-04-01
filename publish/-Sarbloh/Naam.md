@@ -10,6 +10,6 @@ The flavours of greed, attachment and arrogance have entangled me, and the noose
 ਫਾਸਨ ਕੀ ਬਿਧਿ ਸਭ ਹੀ ਕੀਨੀ ਛੂਟਨ ਕੋ ਨਹਿ ਨਾਮ ਲਏ ॥
 The placing of the noose was all my own doing - I did not take Name of the one who could remove it.
 
-[[Sarbloh]] Granth, Volume 1, page 164
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Volume 1, page 164
 
 ![[repent.jpg]]

@@ -4,8 +4,8 @@ With honour in all three worlds
 
 Jaap Sahib
 Guru Gobind Singh 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[chakkar.png]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

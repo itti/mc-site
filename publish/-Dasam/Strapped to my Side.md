@@ -5,6 +5,6 @@ That, which sliced the bodies of Madhu & Kaitabha, and destroyed Sumbha and Nisu
 At the end of my life, let that Kirpan, remain strapped to my left side
 
 Guru Gobind Singh: Rudravatar, Parasnath Katha
-[[Dasam]] Guru Granth: 681
+[[PUBLISHED/publish/-Dasam/Dasam]] Guru Granth: 681
 
 ![[strapped.jpg]]

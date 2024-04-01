@@ -14,5 +14,5 @@ Guru Gobind Singh makes reference to the story within the Mahabharata of the Ris
 
 ![[drinking.jpg]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 

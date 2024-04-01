@@ -19,7 +19,7 @@ Guru Arjan Dev Ji to Santokha Jogi
 Gurpratap [[Suraj]] Prakash Granth, Raas 2, Chapter 35, verse 10-12
 [[Advaita]]
 
-Parallels with Guru Nanak Dev Ji's line in Japuji Sahib in [[Adi]] Guru Granth Sahib:
+Parallels with Guru Nanak Dev Ji's line in Japuji Sahib in [[Adi Guru Granth Sahib/Adi]] Guru Granth Sahib:
 
 ਗੁਰਾ ਇਕ ਦੇਹਿ ਬੁਝਾਈ ॥
 ਸਚਿਦਾਨੰਦ ਕਾਹੇ ਤੇ ਗੁਰ ਦੇਤ ਹੈਂ, ਸੋਈ ਬਤਾਵਤ ਹੈਂ । ਅਦ੍ਵੈਤ ਹੈ ਏਕ ਹੀ ਪੂਰਣ ਸਰਬ ਮੈ ਇਸ ਬੂਝ ਕੋ ਸਤਿਗੁਰ ਬੁਝਾਇ ਦੇਤ ਹੈਂ ।

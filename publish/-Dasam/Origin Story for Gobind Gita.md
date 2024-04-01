@@ -30,10 +30,10 @@ The Singhs then asked, are these the teachings about liberation that Krishna ins
 
 ਗੋਬਿੰਦ ਗੀਤਾ ਤਹਾ ਸੁਨਾਈ ॥ ਕਰੀ ਖਾਲਸਾ ਮੱਧਯ ਬਡਾਈ ॥ 
 ਸਿੰਘਨ ਕੇ ਸੰਦੇਹ ਮਿਟਾਏ ॥ ਜੁਧ ਧਰਮ ਸਭ ਭਾਤਿ ਦ੍ਰਿਢਾਏ ॥12॥
-Due to the question of the Singhs, the Guru then recited the [[Gobind Gita]], to place the beauty of the Gita within the Khalsa. All of the doubts and fears within the Singhs were removed by explaining all dimensions regarding righteous warfare (dharma yudh).
+Due to the question of the Singhs, the Guru then recited the [[PUBLISHED/publish/-Dasam/Gobind Gita]], to place the beauty of the Gita within the Khalsa. All of the doubts and fears within the Singhs were removed by explaining all dimensions regarding righteous warfare (dharma yudh).
 
 ਸ੍ਰੀ ਗੁਰ ਪਦ ਪ੍ਰੇਮ ਪ੍ਰਕਾਸ਼ - ਕ੍ਰਿਤ ਬਾਬਾ ਸੁਮੇਰ ਸਿੰਘ (1880 CE)
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 ![[gita.jpg]]
 [[Gurpadprem]] 
-[[Dasam]] 
+[[PUBLISHED/publish/-Dasam/Dasam]] 

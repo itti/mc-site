@@ -14,4 +14,4 @@ Note: Saloks #50 and #51 were written for Guru Tegh Bahadur's mother, Mata Nanak
 
 Reference: Amir Bhandar Tika, Volume 10, page 762. 
 Image: Mata Gujari cradling a young Gobind Rai in Patna 
-[[Adi]]
+[[PUBLISHED/publish/-Adi/Adi]]

@@ -1,5 +1,5 @@
 ![[bhagauti vaar.jpg]]
-This bani is called Vaar Sri Bhagauti or Bhagat Bhagauti Vaar, and is not to be confused with Vaar Sri Bhagauti in [[Dasam]] Sri Guru Granth which is also referred to as Chandi Di Vaar. This bani does appear in Dasam Sri Guru Granth in various old handwritten copies but not in the standard published version. Please view the attachments at the bottom to see an old handwritten copy of Dasam Sri Guru Granth with this Vaar Bhagauti in it.
+This bani is called Vaar Sri Bhagauti or Bhagat Bhagauti Vaar, and is not to be confused with Vaar Sri Bhagauti in [[PUBLISHED/publish/-Dasam/Dasam]] Sri Guru Granth which is also referred to as Chandi Di Vaar. This bani does appear in Dasam Sri Guru Granth in various old handwritten copies but not in the standard published version. Please view the attachments at the bottom to see an old handwritten copy of Dasam Sri Guru Granth with this Vaar Bhagauti in it.
 
 Furthermore, Bhai Kahn Singh Nabha has wrote the entire bani in his Mahan Kosh under the entry of, Vaar Sri Bhagauti Ji Ki.
 

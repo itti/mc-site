@@ -8,8 +8,8 @@ I deliver this teaching to the Khalsa, which was delivered to Arjuna by the Raja
 ਜਾਨੋ ਸਭ ਕਛੁ ਏਕ ਅਕਾਲ ॥ ਜੋ ਦੇਖੈ ਏਕ ਗੋਬਿੰਦ ਲਾਲ ॥63॥
 Forsake all caste and ashram's *designated Hindu stages of life*, forever be absorbed in the wisdom of Brahm. Recognize the One Akal in all, wherever you look there is that One Beloved Gobind.
 
-- [[Gobind Gita]], 14th chapter
-  [[Dasam]]
+- [[PUBLISHED/publish/-Dasam/Gobind Gita]], 14th chapter
+  [[PUBLISHED/publish/-Dasam/Dasam]]
   
 
 ![[caste.jpg]]

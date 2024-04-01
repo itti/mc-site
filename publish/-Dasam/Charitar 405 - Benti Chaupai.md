@@ -19,4 +19,4 @@ By showing yourself in multiplicity, but you yourself are only One"
 After Mahākāl destroys Swās Bīraj the author then writes this Kabiobach Benti Chaupai, Supplication in the Poet's Words. Its interesting that this supplication uses the same terminology for the Divine, mixing masculine with feminine words like Asdhuj, Mahākāl, Jagmātā, Kālkā etc. 
 
 ![[mahakal4.jpeg]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

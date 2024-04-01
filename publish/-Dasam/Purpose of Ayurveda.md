@@ -1,4 +1,4 @@
-In the following passage, Guru Gobind Singh outlines the necessity and origin of Ayurveda, relating it back to the 17th incarnation of Vishnu provided within the [[Dasam]] Guru Granth Sahib, in the composition of the 24 Incarnations of Vishnu (Chaubis Avatar).
+In the following passage, Guru Gobind Singh outlines the necessity and origin of Ayurveda, relating it back to the 17th incarnation of Vishnu provided within the [[PUBLISHED/publish/-Dasam/Dasam]] Guru Granth Sahib, in the composition of the 24 Incarnations of Vishnu (Chaubis Avatar).
 
 ਅਥ ਧਨੰਤਰ ਬੈਦ ਅਵਤਾਰ ਕਥਨੰ ॥ ਸ੍ਰੀ ਭਗਉਤੀ ਜਿ ਸਹਾਇ ॥
 Now begins the story of the physician Dhanvantari, May Bhagauti be Helpful.

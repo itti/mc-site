@@ -5,7 +5,7 @@ Kabeer, when one died *Ego-Hankaar*, two were dead *Love-Raag and Hate-Dwaikh*. 
 ਚਾਰਿ ਮਰੰਤਹ ਛਹ ਮੂਏ ਚਾਰਿ ਪੁਰਖ ਦੁਇ ਨਾਰਿ ॥੯੧॥⁣  
 When four died, six were dead, four males *Birth-Janam, Death-Maran, Happiness-Harakh, Pain-Sog* and two females *Thirst-Piyaas and Hunger-Bhukh*. 91 ⁣  
 ⁣  
-- [[Adi]] Guru Granth Sahib Ji, ang 1369⁣  
+- [[PUBLISHED/publish/-Adi/Adi]] Guru Granth Sahib Ji, ang 1369⁣  
 ⁣  
 The Faridkot Tika is easily recognized as the best Tika *commentary* within the Sikh Sampradyas of Adi Guru Granth Sahib. Using the oral tradition that has been passed down through generations numerous Nirmala, Udasi and other scholars complied this Tika during the 19th century. ⁣  
 ⁣  

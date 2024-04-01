@@ -11,5 +11,5 @@ The Divine Krishna, standing under a tree is singing Bhairava, Bhimpalasai, Deep
 Listening to these sounds these beautiful doe-eyed women have left their homes, and are roaming in the forest unattached to listen to Krishna.
 
 Guru Gobind Singh, [[Krishnavatar]], Verse 232
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 

@@ -72,4 +72,4 @@ Her Form is Eternal (akālmūrati), Her name is true (satināmu), please her thr
 
 Sarbloh Granth, Chapter 1, verses 100-105, Volume 1, page 20-21. 
 
-[[sarbloh]]
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]]

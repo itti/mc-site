@@ -2,6 +2,6 @@
 Nanak! You alone are an idiot, 
 The rest of the world is great 
 
-[[Adi]] Guru Granth Sahib: 1328
+[[PUBLISHED/publish/-Adi/Adi]] Guru Granth Sahib: 1328
 
 ![[idiot.jpeg]]

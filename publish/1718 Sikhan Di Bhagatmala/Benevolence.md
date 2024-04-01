@@ -15,4 +15,4 @@ Striking similarity with a quote by Guru Nanak:
 
 ਰੇ ਮਨ ਐਸੀ ਹਰਿ ਸਿਉ ਪ੍ਰੀਤਿ ਕਰਿ ਜੈਸੀ ਜਲ ਦੁਧ ਹੋਇ ॥
 ਆਵਟਣੁ ਆਪੇ ਖਵੈ ਦੁਧ ਕਉ ਖਪਣਿ ਨ ਦੇਇ ॥ 
-mahala 1, sri raag, ang [[Adi]] 59 
+mahala 1, sri raag, ang [[Adi Guru Granth Sahib/Adi]] 59 

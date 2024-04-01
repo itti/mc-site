@@ -12,5 +12,5 @@ They have recognized their Self as the Highest Self, the container of doubt whic
 Pain and happiness have both been transcended; being imbued with that flavour of the Omnipresent these afflictions have been stalled
 
 ![[34.jpg]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 [[Vedant]]

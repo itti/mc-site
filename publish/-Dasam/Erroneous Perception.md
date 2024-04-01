@@ -6,7 +6,7 @@ The One form which has indescribable forms; Somewhere as beggar, a prince, and k
 ਭਿੰਨ ਭਿੰਨ ਸਭਹਨ ਉਰਝਾਯੋ ॥ ਸਭ ਤੇ ਜੁਦੋ ਨ ਕਿਨਹੁੰ ਪਾਯੋ ॥੩੭॥ 
 Everyone divided is entangled in conflict In being separated no one has obtained It. 
 
-[[Dasam]]: 155
+[[PUBLISHED/publish/-Dasam/Dasam]]: 155
 
 Painting: Old Age, Adolescene, Infancy, (The Three Ages), 1940 by Salvador Dali
 

@@ -10,7 +10,7 @@ Love and attachment; the source of all joys, is enhanced each day with contempla
 ਬਿਰਜਨਾਦ ! ਨ ਸੰਸ੍ਯਾ ਰੰਚ ਹੈ ਯਾ ਮਹਿ, ਜੇ ਪ੍ਰੇਮ ਕਰਤਿ ਸੋਈ ਪਾਵਤ ਹੈਂ ||
 Birajnaad ! Know this, that there is not an iota of a doubt that those who love attain *Prabhu*.
 
-[[Sarbloh]] Granth, page 397 Volume II
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, page 397 Volume II
 Author: Guru Gobind Singh
 
 This passage from the Sarbloh Granth mimics the very famous passage from the Dasam Guru Granth Sahib: 
@@ -18,6 +18,6 @@ This passage from the Sarbloh Granth mimics the very famous passage from the Das
 ਸਾਚੁ ਕਹੋਂ ਸੁਨ ਲੇਹੁ ਸਭੈ ਜਿਨ ਪ੍ਰੇਮ ਕੀਓ ਤਿਨ ਹੀ ਪ੍ਰਭ ਪਾਇਓ
 Listen everyone! I speak truth! Those who love obtain the Divine
 
-([[Dasam]], Akal Ustat, the Praise of the Timeless). 
+([[Dasam Guru Granth Sahib/Dasam]], Akal Ustat, the Praise of the Timeless). 
 
 ![[prem kio.png]]

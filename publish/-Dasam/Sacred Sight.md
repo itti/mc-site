@@ -6,7 +6,7 @@ The endless forests and greenery, the birds and grand deer!
 ਜਹ ਤਹ ਪ੍ਰਫੁਲ ਸੁੰਦਰ ਸੁਜਾਨ ।। 
 You are flourishing everywhere! The beautiful and wise! 
 
-Praise of the Timeless (ਅਕਾਲ ਉਸਤਤਿ) within the [[Dasam]] Granth
+Praise of the Timeless (ਅਕਾਲ ਉਸਤਤਿ) within the [[PUBLISHED/publish/-Dasam/Dasam]] Granth
 
 Guru Gobind Singh The Guru's vision of the Timeless within the world - the united perspective, seeing the beauty in the unity of multiplicity. 
 

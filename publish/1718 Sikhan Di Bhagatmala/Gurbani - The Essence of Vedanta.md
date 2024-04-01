@@ -13,7 +13,7 @@ Those who practice the Shabad have the essence of wisdom enshrined within them.
 In another portion of the text we also find: 
 
 ਭਾਖਾ ਬਾਣੀ ਗਿਰੰਥ ਜੀ ਵਿਖੇ ਸਭ ਵੇਦਾਂ ਦਾ ਤਤੁ ਸੁਗਮੁ ਕਰਿ ਕੇ ਕਹਿਆ ਹੈ 
-Writing the vernacular writings within the [[Adi]] Granth Ji the essence of the Vedas was described in an understandable format
+Writing the vernacular writings within the [[Adi Guru Granth Sahib/Adi]] Granth Ji the essence of the Vedas was described in an understandable format
 
 ![[adi granth vedanta.jpeg]]
 

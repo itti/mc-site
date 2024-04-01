@@ -10,7 +10,7 @@ I have blanked out such useless dharma, In my heart I only recognize the Creator
 जौ कहो राम अजोनि अजै अति काहे कौ कौसलि कुख जयो जू ॥ 
 If we call Rama the undefeatable birthless one, then why was he born from the womb of Kausalya?
 
-[[Dasam]] Granth: 712 
+[[PUBLISHED/publish/-Dasam/Dasam]] Granth: 712 
 Guru Gobind Singh writing in the perspective of nirguṇa-bhakti, devotion to the formless Divine within his 33 Svaiyye
 
 Contemporary portrait of Guru Gobind Singh 

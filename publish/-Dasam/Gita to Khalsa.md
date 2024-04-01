@@ -9,7 +9,7 @@ I have seen all the Vedas, Puranas, Sematic texts; written in numerous languages
 ਸਹੰਸਕ੍ਰਿਤ ਭਾਖਾ ਅਰ ਅਰਬੀ || ਏਕ ਗੋਬਿੰਦ ਕੀ ਬੋਲੀ ਸਰਬੀ || ਸਤ ਅਸਤ ਜੌ ਦਿਸਟੀ ਆਵੈ || ਸੋ ਸਭੀ ਏਕ ਗੋਬਿੰਦ ਕਹਾਵੈ ||੧੫੦||
 Sanskrit, Arabic and vernacular languages; they are all languages of the One Gobind. Everything that you see in your vision, whether eternally true or not, that all can be called the One Gobind.
 
-[[Gobind Gita]] - page 262
+[[PUBLISHED/publish/-Dasam/Gobind Gita]] - page 262
 
 ![[gobind gita 2.JPG]]
-[[Dasam]] 
+[[PUBLISHED/publish/-Dasam/Dasam]] 

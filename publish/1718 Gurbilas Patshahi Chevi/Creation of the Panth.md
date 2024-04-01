@@ -16,7 +16,7 @@ There the Guru would recite the Adi *Guru* Granth, including the Bani of the Nin
 Damdama Sahib will be equal to Kanshi *Banaras*, dispelling all pain, and a great number of intellectually pure and sharp scribes will be trained. The Damdami Bir will become known across the world, and those who write and read it will not born again. ⁣  
 ⁣  
 ਤੁਮਰੇ ਬਚ ਬਾਣੀ ਕਰੂੰ ਨਵਮ ਗੁਰੂ ਅਸ ਧਾਰ । ਦੁਤੀ ਗ੍ਰਿੰਥ ਰਚ ਛੰਦ ਮਹਿਂ ਦਸਮ ਨਾਮ ਨਿਰਧਾਰ ।389।⁣  
-*Guru Hargobind responding to Jetha says* "Your request to me that I should write Gurbani, I will write when I manifest in the Ninth Guru (finalizing [[Adi]] Guru Granth) . A second Granth will also be written in Chhand metres, which shall be known as [[Dasam]] Guru Granth.
+*Guru Hargobind responding to Jetha says* "Your request to me that I should write Gurbani, I will write when I manifest in the Ninth Guru (finalizing [[Adi Guru Granth Sahib/Adi]] Guru Granth) . A second Granth will also be written in Chhand metres, which shall be known as [[Dasam Guru Granth Sahib/Dasam]] Guru Granth.
 ⁣  
 Gurbilas Patshahi Chevi (1718), Bhagat Singh
 

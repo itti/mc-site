@@ -5,6 +5,6 @@ All those who argue in arrogance
 They remain removed from the Creator 
 
 - The Wonderous Drama [Bachittar Natak], Guru Gobind Singh Chapter 6 - 'Death's Command for Me to Enter the World', verse 61
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[bachittar natak.jpeg]]

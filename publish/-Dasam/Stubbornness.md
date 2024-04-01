@@ -26,5 +26,5 @@ Also similar to the beginning Chritar:
 Oh Mother! Understand me as your servant, bless me with your benevolence
 
 Charitropakhyan, Charitar 1, verse 16
-[[Dasam]] 
+[[PUBLISHED/publish/-Dasam/Dasam]] 
 ![[p10 real painting.png]]

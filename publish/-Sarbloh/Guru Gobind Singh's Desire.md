@@ -17,6 +17,6 @@ Reciting your virtues, this is the desire of your servant Gobind for his brother
 The victory is the True Guru's, whose Kingdom extends from sun rise to sun set.  
 
 Guru Gobind Singh  
-Page 837 Vol. 2 of [[Sarbloh]] Granth
+Page 837 Vol. 2 of [[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth
 
 ![[airaki.png]]

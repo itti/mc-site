@@ -25,8 +25,8 @@ You should understand everything is to be that One Akaal *the Deathless*, unders
 
 author: Guru Gobind Singh page 420
 
-[[Gobind Gita]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 
 ![[sant isher singh.JPG]]

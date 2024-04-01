@@ -17,4 +17,4 @@ Bachittar Natak, Chapter 7, Verse 3.
 
 ![[tiger.jpeg]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

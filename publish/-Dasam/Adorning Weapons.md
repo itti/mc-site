@@ -3,6 +3,6 @@ A warrior adorns weapons in hand - no one else adorns weapons on their limbs
 
 - Guru Gobind Singh Ji
 Krishnavtar, verse 1898
-[[Dasam]] 
+[[PUBLISHED/publish/-Dasam/Dasam]] 
 
 ![[weapons.jpg]]

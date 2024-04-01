@@ -8,7 +8,7 @@ Bhagwan (Krishna) then quickly appeared before them
 It appeared like such a flash of light upon the earth, 
 as if fireworks going off in the dark of night 
 
-[[Dasam]] pg 343 
+[[PUBLISHED/publish/-Dasam/Dasam]] pg 343 
 
 This particular type of firework mentioned above by Guru Gobind Singh, mehtābī ਮਹਤਾਬੀ, was a kind of firework which has an illumination like the moon, somewhat light blue, producing a burst of glittering sparks which fan out in a cascading pattern.
 

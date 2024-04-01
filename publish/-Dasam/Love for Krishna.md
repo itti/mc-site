@@ -12,4 +12,4 @@ Poet Syaam *Guru Gobind Singh's penname* says listen oh congregation of saints, 
 
 This is one of the concluding verses of Guru Gobind Singh's Krishnavatar, a retelling of the 10th Canto of the Bhagavad Purana. Poetically and philosophically similar to the Akal Ustat composition, this passage criticizes the exterior display of religious action in contrast to devotional worship, only this is framed within the context of a retelling of Krishna hence using Krishna here as the personified form of the Divine.
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

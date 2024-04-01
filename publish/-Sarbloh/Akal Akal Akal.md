@@ -13,7 +13,7 @@ Those who worship the Lord with love and recite His name with complete faith, th
 ਲੋਕ ਸੁਖੀ ਪਰਲੋਕ ਖਲਾਸ ਅਕਾਲ ਅਕਾਲ ਅਕਾਲ ਕਰੇਗੇ ॥ ੨੨੮॥੮੫੮॥੧੬੯੨॥⁣  
 Those who recite, Akaal ! Akaal ! Akaal !, in this world will experience happiness and in the next will be liberated.⁣  
 ⁣  
-[[Sarbloh]] Granth, page 176 Chapter 2, Vol. I.
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, page 176 Chapter 2, Vol. I.
 
 ![[akal akal.png]]
 ![[akal akal 2.png]]

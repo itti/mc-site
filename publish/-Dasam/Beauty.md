@@ -10,6 +10,6 @@ These lines are written by Guru Gobind Singh in his Bachittar Natak (the Wondero
 
 The Guru describes simultaneously great beauty and  destructive chaos as manifesting from same wonderous drama of Time/Death. 
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 

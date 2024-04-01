@@ -26,4 +26,4 @@ The fourth type of persons are such in the world who can be called fools because
 
 ![[krishna love.jpg]]
 [[Krishnavatar]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

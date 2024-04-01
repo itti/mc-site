@@ -12,7 +12,7 @@ Interesting how Randhir Singh essentially quotes from both Chāndogya Upaniṣad
 ![[randhir singh dasam.jpeg]]
 
 Painting: Nainsukh, Toor Collection
-[[Dasam]] [[Vedant]] 
+[[PUBLISHED/publish/-Dasam/Dasam]] [[Vedant]] 
 ![[p10 guler.jpeg]]
 
 

@@ -10,5 +10,5 @@ What can a poor servant ever do? The Powerful Master of the World has Maya *the 
 ਕ੍ਰਿਪਾ ਕਰੈ ਜਗਦੀਸ ਜਾ ਸੁ ਪਰ ਮਨ ਬੁਧਿ ਚਿਤ ਤ੍ਰਿਸ਼ਨਾ ਬਸਿ ਫੇਰੋ ।।੮।।
 Bless gracefully upon my oh Master of the World, such that my mind, intellect and memory are turned away from the grips of desire
 
-[[sarbloh]]
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]]
 [[Vedant]]

@@ -23,7 +23,7 @@ There is nothing in the hands of anyone, our intellect and mind work only in His
 Everything is under the control of the Creator of all creatures; what is in the hand of the creatures? .
 
 _ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਭਾਗ 2, ਪਨਾ 110_ 
-[[Sarbloh]] Granth, Volume II., page 110
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Volume II., page 110
 [[Vedant]]
 
 ![[paths to liberation.png]]

@@ -19,6 +19,6 @@ Verse 14
 
 ![[krishna born.jpeg]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 

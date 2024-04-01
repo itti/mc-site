@@ -18,5 +18,5 @@ And the Chritropakhyan was also written for this reason, such that one's mind wo
 ਸਿਖਾਂ ਦੀ ਭਗਤਮਾਲਾ, ਪੰਨਾ 151, ਕ੍ਰਿਤ: ਭਾਈ ਮਨੀ ਸਿੰਘ (1718)  
 Sikhan Di Bhagatmala, page 151, author: Bhai Mani Singh (1718)
 
-[[Dasam]]
+[[Dasam Guru Granth Sahib/Dasam]]
 ![[bhagatmala3.png]]

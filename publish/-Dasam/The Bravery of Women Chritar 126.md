@@ -15,4 +15,4 @@ This brave sharpshooter woman killed the general of the army but lost her son an
 
 A point to remember about this composition, the Chritaropakhyan, the fact that a deception was employed does not evoke a negative judgment upon her especially in this context where the essence of the chritar *story* is articulating the bravery and intellect of this woman.
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

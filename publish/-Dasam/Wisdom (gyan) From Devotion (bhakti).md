@@ -18,5 +18,5 @@ Whatever you serve you will become, you will become what you place your attentio
 
 ![[krishna and arjuna.JPG]]
 
-[[Dasam]]
-[[Gobind Gita]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]]

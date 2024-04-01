@@ -20,6 +20,6 @@ Guru Gobind Singh Ji carried the tradition laid out by his grandfather for the p
 (May I) eliminate the great sin of cow butchering in the world.
 
 Ugardanthi, Chakka 5
-[[Dasam]]
+[[Dasam Guru Granth Sahib/Dasam]]
 
 ![[cow.png]]

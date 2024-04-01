@@ -8,4 +8,4 @@ The Master began learning how to read and write Persian, and would sit at the fe
 
 ![[persian.jpg]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

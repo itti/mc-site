@@ -1,4 +1,4 @@
-This portion from the Sarbloh Granth is under the heading, "Now begins Aarti for the Formless Divine" ਅਥ ਨਿਰਗੁਨ ਆਰਤੀ" and mimics the Aarti written by Guru Nanak in [[Adi]] Guru Granth Sahib.
+This portion from the Sarbloh Granth is under the heading, "Now begins Aarti for the Formless Divine" ਅਥ ਨਿਰਗੁਨ ਆਰਤੀ" and mimics the Aarti written by Guru Nanak in [[Adi Guru Granth Sahib/Adi]] Guru Granth Sahib.
 
 ਗਗਨ ਥਾਲ ਰਵਿ ਸਸਿ ਦ੍ਵੈ ਦੀਪਕ ਉਡਗਨ ਰਤਨ ਜੜਾਨਾ ॥
 The sky is the *cosmic* plate, the sun and moon are the two lamps, the stars are the embedded jewels
@@ -24,7 +24,7 @@ You have thousands of eyes and thousands of forms, thousands of legs, arms and h
 ਨੇਤਿ ਨੇਤਿ ਸੁਰ ਨਿਗਮ ਪੁਕਾਰਤ ਬਿਅੰਤ ਅਨੰਤ ਬਖਾਨਾ ॥2॥
 The Gods and Vedas yell out "Your Limit is not reached here! Your Limit is not reached there!", countless have called you Limitless!
 
-[[Sarbloh]] Granth, author: Guru Gobind Singh
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, author: Guru Gobind Singh
 Volume 1: page 148
 
 ![[universe3.jpg]]

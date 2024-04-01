@@ -8,4 +8,4 @@ It appears that Krishna has taken the form of Death, pulling out the life force 
 
 ![[krishna horse 2.png]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

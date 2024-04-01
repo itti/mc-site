@@ -6,7 +6,7 @@ has purified me graciously.
 Your gracious sidewards glance,
 oh Merciful, that vision removes me from all pain!
 
-[[Sarbloh]] Granth, author: Guru Gobind Singh
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, author: Guru Gobind Singh
 
 Volume 2, page 257
 

@@ -4,6 +4,6 @@ One may have many beautiful wives with faces radiant like the moon and so much w
 ਨਾਮ ਬਿਹੀਨ ਅਧੀਨ ਭਏ ਜਮ ਅੰਤਿ ਕੋ ਨਾਗੇ ਹੀ ਪਾਇ ਸਿਧਾਰੇ ॥੪੯੧॥ 
 But without the Name they all become subservient to Death and at the end of their life they leave with bare feet. 
 
-- Guru Gobind Singh Rudravatar, the concluding the section on Dattatreya [[Dasam]]: 649
+- Guru Gobind Singh Rudravatar, the concluding the section on Dattatreya [[PUBLISHED/publish/-Dasam/Dasam]]: 649
 
 ![[candarmukhi.jpeg]]

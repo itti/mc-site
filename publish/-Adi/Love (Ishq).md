@@ -6,7 +6,7 @@ Those who watch over their heart
 Love and affection oh Nanak! 
 the Creator throws all other accounts aside  
 
-[[Adi]] Guru Granth: 1090, Raag Maaru 
+[[PUBLISHED/publish/-Adi/Adi]] Guru Granth: 1090, Raag Maaru 
 Guru Nanak
 
 Painting: India, Uttar Pradesh, Awadh, Lucknow or Farrukhabad, circa 1780

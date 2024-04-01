@@ -11,4 +11,4 @@ This line is in reference to a story in the Mahābhārata where Arjuna wins an a
 Guru Gobind Singh has a whole chapter of riddles like this describing different names for arrows, with nearly 200 verses in total. Another chapter includes riddles on the names of guns (nearly 900 verses), which were in the form of matchlock muskets during that period.
 ![[mahabharata2.jpeg]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

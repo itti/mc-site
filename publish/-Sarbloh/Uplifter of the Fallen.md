@@ -13,7 +13,7 @@ Look gracefully at me oh Treasure of Compassion; within my mind and heart this i
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਕ੍ਰਿਤ: ਗੁਰੂ ਗੋਬਿੰਦ ਸਿੰਘ ਜੀ ਮਹਾਰਾਜ
 ਭਾਗ 1, ਅੰਗ 158
 
-[[Sarbloh]] Granth, author: Guru Gobind Singh
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, author: Guru Gobind Singh
 Volume 1, Page 158
 
 ![[saran.png]]

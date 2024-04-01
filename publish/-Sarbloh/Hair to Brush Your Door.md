@@ -13,10 +13,10 @@ May I make my mind a honey-bee so I may constantly land and enjoy the lotus-like
 -   Guru Gobind Singh
 
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਭਾਗ 1, ਅੰਗ 52
-[[Sarbloh]] Granth, Vol 1, Page 52
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Vol 1, Page 52
 
 
-A very similar line exists in [[Adi]] Guru Granth Sahib, written by Guru Arjan in Raag Suhi:⁣
+A very similar line exists in [[Adi Guru Granth Sahib/Adi]] Guru Granth Sahib, written by Guru Arjan in Raag Suhi:⁣
 
 ਕੇਸਾ ਕਾ ਕਰਿ ਬੀਜਨਾ ਸੰਤ ਚਉਰ ਢੁੁਲਾਵਉ ॥⁣
 May I grow my hair long to wave over the Saints!

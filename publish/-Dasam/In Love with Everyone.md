@@ -2,7 +2,7 @@
 Eternally always 
 In love with everyone 
 
-- the Praise of the Timeless (ਅਕਾਲ ਉਸਤਤਿ) in [[Dasam]]
+- the Praise of the Timeless (ਅਕਾਲ ਉਸਤਤਿ) in [[PUBLISHED/publish/-Dasam/Dasam]]
 author: Guru Gobind Singh 
 
 Painting: Guru Gobind Singh by Jatinder Singh Durhailay

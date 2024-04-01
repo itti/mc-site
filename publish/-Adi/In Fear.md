@@ -1,7 +1,7 @@
 ਭੈ ਵਿਚਿ ਜੋਧ ਮਹਾਬਲ ਸੂਰ ॥  
 Jodhas, Mahabalis and Soormas all fight with the Fear of Paramatma *the Highest Self* within them. 
 
-- [[Adi]] Guru Granth Sahib, Ang 464 .  
+- [[PUBLISHED/publish/-Adi/Adi]] Guru Granth Sahib, Ang 464 .  
 
 There are multiple interpretations of the words, Jodha, Mahabali and Soorma, which are all types/classes of warriors. .  
 

@@ -39,4 +39,4 @@ In this way, the ferocious battlefield power of Bhavani was manifested and used 
 
   
 Note: Avatar Singh is referring to when the Devi appeared before Guru Gobind Singh Ji and gave Her dagger *karad* to Guru Gobind Singh Ji for use in the Amrit Sanchaar *ref Suraj Prakash and Puratan Rehatnamas*.
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

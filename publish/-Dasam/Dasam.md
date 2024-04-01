@@ -5,5 +5,5 @@ For an overview of the Dasam Granth watch:
 ![](https://www.youtube.com/watch?v=8IZ7hBwvmsQ&t=)
 
 
-[[Gobind Gita]]
-[[sarbloh]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]]
+[[Sarbloh Guru Granth Sahib/Sarbloh]]

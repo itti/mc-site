@@ -26,7 +26,7 @@ That Brahm *Divine* which controls the power of Maya, which said, "From One Be M
 
 [[Garab Ganjini]] Tika (1829 CE), author: the Great Poet Santokh Singh
 [[Suraj]]
-[[Dasam]]
+[[Dasam Guru Granth Sahib/Dasam]]
 [[Vedant]]
 
 ![[devi mahakal.png]]

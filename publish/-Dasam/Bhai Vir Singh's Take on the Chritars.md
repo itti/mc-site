@@ -6,5 +6,5 @@ Ref: Suraj Prakash Volume 12, page 4994
 
 ![[Screenshot 2024-03-03 120917.png]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 [[Purpose of Dasam Granth]]

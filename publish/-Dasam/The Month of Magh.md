@@ -4,7 +4,7 @@ In the month of Magh, we all get together and play with Krishna and experience g
 ਸੀਤ ਲਗੈ ਤਬ ਦੂਰ ਕਰੈ ਹਮ ਸਯਾਮ ਕੇ ਅੰਗ ਸੋ ਅੰਗ ਮਿਲਾਈ । 
 It is cold, but we dispel this by merging our body with the body of Krishna.
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 A quote from Guru Gobind Singh's Barah Maha [the 12 Months]. The Barahmaha or Barahmasa is a poetic literary genre written across various languages in South Asia often devotional but sometimes secular.
 

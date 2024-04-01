@@ -1,4 +1,4 @@
-An important passage within the [[Sarbloh]] Granth Sahib, here we find Guru Gobind Singh using two of his most common pseudonym's 'Raam' and 'Syaam' in succession. These pseudonym's are markers for the writings of Guru Gobind Singh, and are frequently found within the [[Dasam]] Granth Sahib along with the Sarbloh Granth.
+An important passage within the [[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth Sahib, here we find Guru Gobind Singh using two of his most common pseudonym's 'Raam' and 'Syaam' in succession. These pseudonym's are markers for the writings of Guru Gobind Singh, and are frequently found within the [[Dasam Guru Granth Sahib/Dasam]] Granth Sahib along with the Sarbloh Granth.
 
 ਹਰਿ ਕੀ ਗਤਿ ਕੋਊ ਨ ਜਾਨ ਸਕੈ, ਹਰੀ ਭਗਤਿ ਅਧੀਨੀ ਭਾਵਤੁ ਹੈਂ ॥
 No one can comprehend the state of Hari, but Hari loves the subservience of His devotees.

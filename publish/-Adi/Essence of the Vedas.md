@@ -1,4 +1,4 @@
-Written in the 19th century, the Faridkot Tika is the foremost commentaries on the [[Adi]] Guru Granth Sahib within traditional (sampradyaik) circles. Authored from mainly Nirmala Sikhs, who had a firm understanding ancient Sanskrit literature, they also inherited the passed down knowledge that would contextualize Sikh scriptures. The passage below comes from Asa Ki Var, wherein Guru Nanak individually summarizes the Four Vedas, and then provides a recap of the essence of all ancient Indian scripture with the lines:  
+Written in the 19th century, the Faridkot Tika is the foremost commentaries on the [[PUBLISHED/publish/-Adi/Adi]] Guru Granth Sahib within traditional (sampradyaik) circles. Authored from mainly Nirmala Sikhs, who had a firm understanding ancient Sanskrit literature, they also inherited the passed down knowledge that would contextualize Sikh scriptures. The passage below comes from Asa Ki Var, wherein Guru Nanak individually summarizes the Four Vedas, and then provides a recap of the essence of all ancient Indian scripture with the lines:  
 
 ਭਾਉ ਭਗਤਿ ਕਰਿ ਨੀਚੁ ਸਦਾਏ ॥ ਤਉ ਨਾਨਕ ਮੋਖੰਤਰੁ ਪਾਏ ॥੨॥ .  
 .  

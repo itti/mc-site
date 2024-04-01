@@ -6,6 +6,6 @@ Oh Khalsa ! Understand, yourself and others to be all Bishan *the All-Pervading*
 ਸਭੀ ਅਕਾਲ ਏਕ ਤੁਮ ਜਾਨੋ || ਅਕਾਲ ਰੂਪ ਸੰਸਾਰ ਸਭ ਮਾਨੋ ||
 You should understand everything is to be that One Akaal *the Deathless*, understand the entire world as the form of Akaal *the Deathless* _
 
-[[Gobind Gita]] , author: Guru Gobind Singh
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]] , author: Guru Gobind Singh
+[[PUBLISHED/publish/-Dasam/Dasam]]
 [[Vedant]]

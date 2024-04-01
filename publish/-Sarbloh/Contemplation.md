@@ -10,7 +10,7 @@ Enshrining the Guru's Lotus-Feet in your heart one is quickly saved from the tre
 ਗੁਰੁ ਕੋ ਨਾਮ ਚਰਨ ਜੇ ਜਾਪਤਿ ॥ ਹਰਿ ਪਦ ਹਰਿਜਨ ਕਉ ਨਿਤਿ ਪ੍ਰਾਪਤਿ ॥3॥
 The sanctuary of the Guru's Lotus-Feet is a great support, the True Guru's Lotus-Feet is the ship that carries one across the World-Ocean. Those who recite *praise* the name of the Lotus-Feet of the Guru, those devotees of Hari, they always attain the same form as Hari *the All-Pervading*.
 
-[[Sarbloh]] Granth, author: Guru Gobind Singh
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, author: Guru Gobind Singh
 Volume II, page 483 
 
 ![[charan2.jpg]]

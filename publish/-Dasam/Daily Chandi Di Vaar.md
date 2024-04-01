@@ -15,7 +15,7 @@ And the congregation will destroy the Turks
 
 Sau Sakhi 66, page 153-154 Volume 2
 
-[[Dasam]] 
+[[PUBLISHED/publish/-Dasam/Dasam]] 
 [[Sau Sakhi]]
 
 ![[devi.jpg]]

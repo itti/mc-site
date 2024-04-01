@@ -13,4 +13,4 @@ No one has ever been able to convey a method, which would save oneself from this
 Oh idiot, if no one has escaped Death, why would you not go laughing into Its sanctuary? 
 
 
-Bachittar Natak *The Wonderous Drama*, Guru Gobind Singh Ji  [[Dasam]]: 46
+Bachittar Natak *The Wonderous Drama*, Guru Gobind Singh Ji  [[PUBLISHED/publish/-Dasam/Dasam]]: 46

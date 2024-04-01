@@ -8,7 +8,7 @@ Latest Posts:
 [[Weapon-Wearing Panth]]
 [[The Forty Liberated Ones]]
 [[Like Father Like Grandson]]
-[[The Guru's Humility]]
+[[PUBLISHED/publish/-Sarbloh/The Guru's Humility]]
 [[Meat Eaters]]
 
 

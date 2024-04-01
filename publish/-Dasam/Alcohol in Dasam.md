@@ -9,6 +9,6 @@ Consuming these four they became intoxicated and Krishna then said to Arjuna, "B
 Then Arjuna, while folding his hands, replied Hari *Krishna*, "Why would he create that? What would this dull Brahmin know of these pleasures?"
 
 [[Krishnavatar]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[alcohol.png]]

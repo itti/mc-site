@@ -21,9 +21,9 @@ Randhir Singh says they are:
 1) caressing 2) kissing 3) scratching/biting 4) intercourse
 
 Texts on love making, like the Koka, or Ratirahasya, was said to be translated in the Anandpur Darbar by the son of one of the most famous Brajbhasha poets, Keshavdas. His son's name was Kuvresh.
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[bhog.jpeg]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 

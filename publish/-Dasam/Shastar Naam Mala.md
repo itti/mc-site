@@ -28,6 +28,6 @@ That's why I contemplated *the Sword* first in my invocations *in my writings*.
 It is the Cherished Belove *ishtdev* of the Exalted Khalsa, fulfilling all their desires.""
 
 [[Gurbilas Patshahi 10]] (1797), author: Sukha Singh, Chapter 1 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[shastar naam mala.png]]

@@ -51,4 +51,4 @@ All the sages, spiritual as well as royal, bless Thee again and again, they have
 ਐਸੇ ਜਸੁ ਪੂਰ ਰਹਿਉ ਚੰਡਿਕਾ ਕੋ ਤੀਨ ਲੋਕ ਜੈਸੇ ਧਾਰ ਸਾਗਰ ਮੈ ਗੰਗਾ ਜੀ ਕੋ ਆਪੁ ਹੈ ॥
 The praise of Chandika (Chandi) pervades thus in all the three worlds like the merging of the pure water of the Ganges in the current of the ocean.
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

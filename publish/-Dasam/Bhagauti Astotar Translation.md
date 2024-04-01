@@ -60,4 +60,4 @@ Whosoever repeats this eulogy with love in the early morning, Rudra *Shiv Ji* an
 ਸਦਾ ਦਾਹਨੇ ਦਾਸ ਕੇ ਦਾਨ ਦੀਜੈ ॥ ਗੁਰੂ ਸ਼ਾਹ ਗੋਬਿੰਦ ਕੀ ਰੱਖ ਕੀਜੈ ॥
 Always bless your servant with the blessing of being in their right hand! The King Guru Gobind *Singh* keeps Your presence!
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

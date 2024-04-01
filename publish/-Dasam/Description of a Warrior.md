@@ -14,12 +14,12 @@ Giving happiness to all, they always serve others, recognize the class of warrio
 As a constant practice they always instill within them the awareness of the Self, recognize such a person as supreme.
 
 ਗੋਬਿੰਦ ਗੀਤਾ, ਕ੍ਰਿਤ: ਗੁਰੂ ਗੋਬਿੰਦ ਸਿੰਘ ਜੀ
-[[Dasam]]
-[[Gobind Gita]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]]
 
 ![[warriors.JPG]]
 
 
 
-[[Gobind Gita]], author: Guru Gobind Singh
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]], author: Guru Gobind Singh
+[[PUBLISHED/publish/-Dasam/Dasam]]

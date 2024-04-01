@@ -12,6 +12,6 @@ No one has ever received such a blessing, in my mind I have desired to gain such
 ਬਡੇ ਭਾਗ ਨਿਸਚਰ ਕੇ ਲਹਿਯਤਿ, ਕਰਤਿ ਬਿਰੋਧ ਪਾਵ ਦਰਸੇਰੋ ।।
 A great fortune has been attained by me, this demon, who through fighting against Hari have come to attain their Darshan.
 
-[[sarbloh]]
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]]
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/540380886&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/manglacharan" title="Manglacharan" target="_blank" style="color: #cccccc; text-decoration: none;">Manglacharan</a> · <a href="https://soundcloud.com/manglacharan/merit-of-being-a-warrior" title="Merit Of Being A Warrior" target="_blank" style="color: #cccccc; text-decoration: none;">Merit Of Being A Warrior</a></div>

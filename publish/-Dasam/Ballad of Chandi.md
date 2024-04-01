@@ -2,6 +2,6 @@ For centuries the ballad *Chandi Di Vaar* and stories *Chandi Chritar* of Chandi
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/PLfPCzLTGuA?si=HyAJUdW5ToTp-PNo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 

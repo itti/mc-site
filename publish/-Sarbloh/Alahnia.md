@@ -14,6 +14,6 @@ It is rare to find someone without desire, one in a million; that person has for
 Desire is the originator of both heaven and hell, so is said and expounded upon by the intelligent Muni's and the finest scriptures.
 
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਭਾਗ 2, ਪੰਨਾ 637
-[[Sarbloh]] Granth, Volume II, page 637
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Volume II, page 637
 
 ![[alannia.png]]

@@ -7,4 +7,4 @@ Salute to the one who Enjoys Projectiles !
 
 ![[astar.png]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

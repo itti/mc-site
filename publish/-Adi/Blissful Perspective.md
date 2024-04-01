@@ -2,6 +2,6 @@
 Observing the world I remain in bliss 
 
 - Guru Amar Das Ji
-[[Adi]] Guru Granth Sahib: 1174
+[[PUBLISHED/publish/-Adi/Adi]] Guru Granth Sahib: 1174
 
 ![[blissful perspective.jpeg]]

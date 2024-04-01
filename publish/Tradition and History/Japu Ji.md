@@ -12,6 +12,6 @@ Manu and other kings like Ramchandra, will forever in devotion fill their hands 
   
 - Sant Gurbachan Singh Ji on Japuji Sahib  
 Gurmukh Prakash *1930~*. page 423
-[[Adi]]
+[[Adi Guru Granth Sahib/Adi]]
 
 ![[devtey.jpg]]

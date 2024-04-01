@@ -15,7 +15,7 @@ Everyone places their gaze on it while roaming They all journey to salute it.
 Bachittar Natak (Wondrous Play), Chapter 2 
 
 Painting by Francisco Goya (1746–1828), entitled: Esto es peor (This is worse). This is one image of many from Goya's series on Disasters of War.
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[1596px-Prado_-_Los_Desastres_de_la_Guerra_-_No._37_-_Esto_es_peor.jpg]]
 

@@ -11,4 +11,4 @@ Here Guru Gobind Singh names the Gun as the 'King-Army Churner', analogizing the
 ਜਗਤੀਸਣੀ = ਜਗਤ (World) ਈਸ (Rulers/Kings) ਣੀ (Army of)⁣
 ਮਥਣੀ = Churner
 
-![[pistol.jpg]][[Dasam]] 
+![[pistol.jpg]][[PUBLISHED/publish/-Dasam/Dasam]] 

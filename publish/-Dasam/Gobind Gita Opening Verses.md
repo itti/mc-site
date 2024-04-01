@@ -20,8 +20,8 @@ The Master has expanded through countless forms, and is within all hearts; knowi
 ਜੋ ਦੀਸੈ ਸੋ ਕ੍ਰਿਸ਼ਨ ਮੁਰਾਰੇ ॥ ਜਿਨ ਏਹ ਸਗਲੇ ਖੇਲ ਪਸਾਰੇ ॥ ਬਾਲਿਕ ਨਿਆਈ ਖੇਲ ਸਭ ਖੇਲੇ ॥ ਖੇਲ ਰਹੇ ਤਬ ਆਪਿ ਸੰਗ ਮੇਲੇ ॥4॥
 Whatever one see's that is Krishna, the destroyer of the demon Mura, who has spread out this entire Game of Life throughout the world. Just like a child plays, such is the Game of Life we all play. Playing this game, we only merge when Krishna Himself merges with us.
 
-[[Gobind Gita]], Chapter 1, author: Guru Gobind Singh
+[[PUBLISHED/publish/-Dasam/Gobind Gita]], Chapter 1, author: Guru Gobind Singh
 
 ![[gobind gita.JPG]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

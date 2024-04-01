@@ -16,4 +16,4 @@ Sarbloh Granth, Volume 1, page 64
 Author: Guru Gobind Singh 
 
 
-[[sarbloh]]
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]]

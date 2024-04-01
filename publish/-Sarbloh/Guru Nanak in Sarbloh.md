@@ -19,4 +19,4 @@ Guru Nanak knows Hari ! He Knows !
 
 ![](https://www.youtube.com/watch?v=-aF_MOZoOPI)
 
-[[sarbloh]]
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]]

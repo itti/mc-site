@@ -11,6 +11,6 @@ For this reason Prabhu had sent Guru Nanak, to instill divine unity, and save th
 (Akal Purkh said to Guru Nanak in Sachkhand)"Go and  firmly impart the True Name in the world, and thereby save the whole creation from paying their toll tax to the messengers of death!"
 
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਭਾਗ 2, ਪੰਨਾ 494
-[[Sarbloh]] Granth, Volume II, Page 494
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Volume II, Page 494
 
 ![[guru nanak sarbloh.png]]

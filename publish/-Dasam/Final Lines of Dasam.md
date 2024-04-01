@@ -4,6 +4,6 @@ Oh bartender ! Pour me that green-coloured drink *Cannabis* ! That which will be
 ਲਬਾਲਬ ਬਕੁਨ ਦਮ ਬਦਮ ਨੋਸ਼ ਕੁਨ॥ ਗ਼ਮੇ ਹਰ ਦੁਆਲਮ ਫ਼ਰਾਮੋਸ਼ ਕੁਨ ॥ ⁣
 Keep it filled up to the brim ! So I may forever continue to drink it and forget the pains of both worlds *here and the hereafter* !⁣
 
-- Guru Gobind SIngh, [[Dasam]] Guru Granth Sahib
+- Guru Gobind SIngh, [[PUBLISHED/publish/-Dasam/Dasam]] Guru Granth Sahib
 
 ![[end of dasam.jpg]]

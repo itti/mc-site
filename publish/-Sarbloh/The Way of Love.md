@@ -10,4 +10,4 @@ By worrying the one without worry is not obtained - becoming fully immersed you 
 ਪ੍ਰੀਤਿ ਕੀ ਰੀਤਿ ਗੋਬਿੰਦ ਲਖੈ ਰਸ ਪ੍ਰੇਮ ਢਰੇ ਕਰੁਨਾ ਨਿਧ ਜੇਹੀ ॥
 Those who are drenched in essence of love with the Treasure of Grace, they understand the way of love for the Divine *Gobind*. 
 
-[[Sarbloh]] Granth, page 172 
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, page 172 

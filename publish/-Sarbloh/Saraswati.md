@@ -11,6 +11,6 @@ The everlasting, unreachable, unfathomable ! The giver of sweet speech, Hail to 
 The giver of liberation and wealth! Forever Hail Hail Hail to Saraswati !
 
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਭਾਗ 1, ਪੰਨਾ 23, ਕ੍ਰਿਤ: ਗੁਰੂ ਗੋਬਿੰਦ ਸਿੰਘ ਜੀ
-[[Sarbloh]] Granth, Volume I, page 23, author: Guru Gobind Singh Ji
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Volume I, page 23, author: Guru Gobind Singh Ji
 
 ![[saraswati.png]]

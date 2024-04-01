@@ -7,7 +7,7 @@
 
 - First stanza of Akal Ustat, shown in the image above
 
-Guru Gobind Singh's Akal Ustat, in [[Dasam]], was extremely important in the composition of Sarbloh Granth, so much so that it gets mentioned within the text, which has been provided below.
+Guru Gobind Singh's Akal Ustat, in [[Dasam Guru Granth Sahib/Dasam]], was extremely important in the composition of Sarbloh Granth, so much so that it gets mentioned within the text, which has been provided below.
 
 
 ਅਕਾਲੁ ਸਤੁਤਿ ਕੇ ਆਦਿ ਸਲੋਕ ਜੇ, ਸ੍ਰੀ ਸਰਬਲੋਹ ਕੀ ਰੱਛ੍ਯਾ ॥ 'ਮਹਾਕਾਲ ਅਕਾਲ ਪੁਰਖ' ਜੀ, ਏਕ ਜੋਤਿ ਸੁਭ ਦਿੱਛ੍ਯਾ ॥

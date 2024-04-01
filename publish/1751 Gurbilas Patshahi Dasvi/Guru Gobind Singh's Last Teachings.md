@@ -12,7 +12,7 @@ At the time of Amrit Vela one should desire to wake up and bathe, they should cl
 ⁣  
 ਸ੍ਰੀ ਜਪੁ ਪਠ ਮੰਤ੍ਰ ਗੁਰ ਕੇਰਾ । ਵਾਤੌ ਪੁਨਿ ਕਾਰਨ ਚਹੈ ਬੇਰਾ । ⁣  
 ਐਸ ਗਉੜੀ ਵਾਰ ਮਹਿ ਕਹਾ ਹੈ ਸੋ ਰਹਤ ਕਰੈ ।⁣  
-They should recite the mantra of the Guru, the Exalted Japu Ji - for this reason one should awake, just as is written in the Gauri Vaar ([[Adi]] Ang 305), such is the conduct to be observed."⁣  
+They should recite the mantra of the Guru, the Exalted Japu Ji - for this reason one should awake, just as is written in the Gauri Vaar ([[Adi Guru Granth Sahib/Adi]] Ang 305), such is the conduct to be observed."⁣  
 ⁣  
 ਗੁਰ ਸਤਿਗੁਰ ਕਾ ਜੋ ਸਿਖੁ ਅਖਾਏ ਸੁ ਭਲਕੇ ਉਠਿ ਹਰਿ ਨਾਮੁ ਧਿਆਵੈ ॥⁣  
 ਉਦਮੁ ਕਰੇ ਭਲਕੇ ਪਰਭਾਤੀ ਇਸਨਾਨੁ ਕਰੇ ਅੰਮ੍ਰਿਤ ਸਰਿ ਨਾਵੈ ॥⁣  

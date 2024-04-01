@@ -21,6 +21,6 @@ Just as virtuous action hides sins, just as vines encircle a tree.
 Just as the the constellation encircles Polaris, just as the oceans surround land,
 In this manner, the enemy had encircled the brave Kharag Singh.
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[mala.jpg]]

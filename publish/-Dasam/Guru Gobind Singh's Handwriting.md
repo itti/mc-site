@@ -10,4 +10,4 @@ At the bottom right of the first photo it reads, ""I am reciting the Dasam *Skan
 The second photo is the next page in the Bhai Mani Singh Shahid saroop where they have provided the Gurbani written in a non-shiksata script (non-calligraphy script).
 
 The digitized 1713 compilation of Gurbani (Adi & Dasam) is available thanks to Kamalpreet Singh Pardesi via www.Gurmatveechar.com -> Gurbani & Literature
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

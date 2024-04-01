@@ -23,7 +23,7 @@ Whoever engages with Hari while being egotistical, they will receive the fruit o
 Hari makes kings into beggars in a moment, and eats away all pride and praise.
 
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਭਾਗ 2, ਪੰਨਾ 314
-[[Sarbloh]] Granth, Volume II., Page 314
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Volume II., Page 314
 [[Vedant]]
 
 ![[narak.png]]

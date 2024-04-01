@@ -11,6 +11,6 @@ Friend, these mansions, built from solid mortar (thick), as high up in the mount
 Even these (big and perky breasts) I've seen crumble (droop over time); oh Woman do not be arrogant about your breasts.⁣  
 ⁣  
 - Guru Nanak  
-[[Adi]] Guru Granth Sahib: 1410
+[[PUBLISHED/publish/-Adi/Adi]] Guru Granth Sahib: 1410
 
 ![[m1 varan de vadheek.jpg]]

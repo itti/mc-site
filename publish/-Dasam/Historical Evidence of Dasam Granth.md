@@ -63,4 +63,4 @@ This has been written 61 years after Guru Gobind Singh Ji left this world and al
 
 History shows that Dasam Granth has been ingrained in the Sikh Panth since the time of Guru Gobind Singh Ji. The supporters against Dasam Granth refuse to accept any historical books such as, Gur Sobha (1711), Gurbilas (1751), Bansavalinama (1769), Mahima Prakash (1776), Prachin Panth Prakash (1804), Suraj Prakash (mid 1800s), Naveen Panth Prakash (late 1800s), which all mention the writings of Sri Guru Gobind Singh Ji.
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

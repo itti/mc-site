@@ -31,6 +31,6 @@ Within this line the word Gurmukh was used multiple times with a variety of diff
 [[Alankar - Poetic Devices]]
 [[Suraj]]
 [[Vedant]]
-[[Adi]]
+[[Adi Guru Granth Sahib/Adi]]
 
 ![[guru nanak gurmukh.png]]

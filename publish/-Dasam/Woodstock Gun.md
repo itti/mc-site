@@ -12,4 +12,4 @@ Shastarnaam Mala *Rosary of Weapon Names*, author: Guru Gobind Singh
 
 ![[woodstuck gun.jpg]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

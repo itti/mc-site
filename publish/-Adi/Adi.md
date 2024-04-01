@@ -2,9 +2,9 @@ This page will be a guide to understanding Adi Guru Granth Sahib, including sect
 
 The following is a guide to understanding Gurbani, there are many aspects to study, this is a non-exhaustive list with references to resources:
 
-![[Grammar]]
+![[PUBLISHED/publish/-Adi/Grammar]]
 
 
-![[Poetics]]
+![[PUBLISHED/publish/-Adi/Poetics]]
 
-![[Historical Context for Gurbani (ਉਥਾਨਕਾ)]]
+![[PUBLISHED/publish/-Adi/Historical Context for Gurbani (ਉਥਾਨਕਾ)]]

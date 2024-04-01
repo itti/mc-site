@@ -11,6 +11,6 @@ Brother, everything that has form is but the All Pervasive.
 That All Pervasive is united in all, not even a speck is separate.  
   
 ਗੋਬਿੰਦ ਗੀਤਾ, ਕ੍ਰਿਤ: ਪਾਤਸ਼ਾਹੀ 10, ਸਤਵਾਂ ਧਿਆਇ  
-[[Gobind Gita]], author: Guru Gobind Singh, Chapter 7
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]], author: Guru Gobind Singh, Chapter 7
+[[PUBLISHED/publish/-Dasam/Dasam]]
 [[Vedant]]

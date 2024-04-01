@@ -16,4 +16,4 @@ This passage points toward the import of the Chritaropakhyan, that it illuminate
 
 ![[Charitropakhyan_-_Invocation,_Stanza_1-2_in_the_hand_of_Guru_Gobind_Singh.jpg]]
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

@@ -242,4 +242,4 @@ Without a husband a women cannot enjoy the pleasures of bed.
 Then, he goes to the Court of the Lord, wearing robes of honour"
 
 *This discussion continues but I have ended it at page 260 of Bansavalinama*
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

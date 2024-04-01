@@ -10,7 +10,7 @@ Her Name and Form are True, She is the Creator in All, Has Never Taken Birth and
 ਅਕਾਲ ਮੂਰਤਿ ਅਨੁਭਉ ਸਦਾ ਜੈ ਜੈ ਅਨਰੰਜਸ ।
 She is the Form of Timeless/Deathless, Forever The Experience - Hail Hail to the Joyful One !
 
-[[Sarbloh]] Granth, author: Guru Gobind Singh
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, author: Guru Gobind Singh
 
 Volume 1, page 46
 

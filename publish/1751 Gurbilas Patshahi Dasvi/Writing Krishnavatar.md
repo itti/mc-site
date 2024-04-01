@@ -1,6 +1,6 @@
 ਮਨੀ ਸਿੰਘ ਭਨ ਗਾਥ ਰਸਾਲਾ ॥ ਸ੍ਰੀ ਗੁਰ ਤਹਿੰ ਕਰ ਚਰਿਤ ਬਿਸਾਲਾ ॥ 
 ਪ੍ਰਥਮ ਪਹਰ ਸਤਿਗੁਰ ਤਹਿ ਐਸੇ ॥ ਕ੍ਰਿਸਨ ਚਰਿਤ੍ਰ ਗਾਥ ਲਿਖ ਤੈਸੇ ॥2॥
-Bhai Mani Singh beautifully recited these stories of the Exalted Guru's miraculous feats. In the early morning (6-9am) the True Guru would write stories of Krishna, [[Krishnavatar]] in [[Dasam]] Guru Granth
+Bhai Mani Singh beautifully recited these stories of the Exalted Guru's miraculous feats. In the early morning (6-9am) the True Guru would write stories of Krishna, [[Krishnavatar]] in [[Dasam Guru Granth Sahib/Dasam]] Guru Granth
 
 ਯਾ ਬਿਧਿ ਸੁੰਦਰ ਗਾਥ ਭਨਾਹੀ ॥ ਸਭ ਸਿੱਖਨ ਕਉ ਪਾਵਨ ਚਾਹੀ ॥ 
 ਪੁਨਿ ਤਾਤੇ ਗੁਰ ਬਾਹਰ ਆਵੈਂ ॥ ਭੋਜਨ ਕਰੈਂ ਦਿਵਾਨ ਲਗਾਵੈਂ ॥3॥
@@ -16,5 +16,5 @@ Following this, the Compassionate One would take with him all the warriors, they
 ![[p10hunt.JPG]]
 
 [[Gurbilas Patshahi 10]], author: Kaur Singh 1751
-[[Dasam]]
+[[Dasam Guru Granth Sahib/Dasam]]
 Chapter 6, Page 63

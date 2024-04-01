@@ -4,6 +4,6 @@ In love with everyone
 
 - the Praise of the Timeless (ਅਕਾਲ ਉਸਤਤਿ)
 Guru Gobind Singh 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[p10 new.png]]

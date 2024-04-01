@@ -16,7 +16,7 @@ In this world, recognize that only those lives can be considered fruitful who fi
 ਤਿਨ ਕੋ ਬ੍ਰਹਮ ਰੂਪ ਤੁਮ ਜਾਨੋ || ਪ੍ਰਭ ਅਵਿਤਾਰ ਤਿਨਕੋ ਪਹਿਚਾਨੋ || ਖਾਲਸਾ ਤੁਮ ਭੀ ਐਸੇ ਕਰੋ || ਆਪ ਪਹਿਚਾਨ ਹਰਿ ਮੈਂ ਚਿਤ ਧਰੋ ||੬੭||
 In this way you should recognize the form of Braham, understand yourself as descended *avatara* of Prabhu *the Master*. Khalsa! You should also recognize yourself as thus; Contemplate and Realize Hari Within.
 
-[[Gobind Gita]], author Guru Gobind Singh, page 461-462.
+[[PUBLISHED/publish/-Dasam/Gobind Gita]], author Guru Gobind Singh, page 461-462.
 
 ![[demons and istri.JPG]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

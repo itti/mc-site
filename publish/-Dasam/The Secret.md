@@ -2,7 +2,7 @@ Thinking of this quote by Attar of Nishapur (1145-1221) and Guru Gobind Singh's 
 
 ਸੀਸੁ ਦੀਆ ਪਰ ਸਿਰਰੁ ਨ ਦੀਆ ॥ 
 He gave his head but not his secret
-- [[Dasam]]: 55. 
+- [[PUBLISHED/publish/-Dasam/Dasam]]: 55. 
 ![[secret.jpeg]]
 At the beginning of the Chaubis Avatar within Dasam Granth this idiom appears again: A lover of the Divine never exhibits any quackery or holier-than-thou-ness, with no attachment to his body remains committed to his inner secret of love even if it results in death. 
 ![[secret2.jpeg]]

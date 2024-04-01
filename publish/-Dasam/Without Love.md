@@ -4,7 +4,7 @@ Syām says, why are you not saying this?!
 Without love how will one please the Lord of Braj? 
 
 - Guru Gobind Singh, under the penname Syām in Krishnavatar
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[without love.jpeg]]
 

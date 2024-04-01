@@ -4,7 +4,7 @@ Listen my friend, the meaning of Ishnaan *bathing* really is when 'Listens', 'Re
 ਐਸਾ ਇਸਨਾਨ ਕਰੈ ਕੇ ਕੋਇ || ਅਰਜਨ ਵਹੀ ਕ੍ਰਿਤਾਰਥ ਹੋਇ ||੬੪|| 
 Someone who performs this type of Ishnaan *bathing*, oh Arjuna, only they are fruitful in their endeavors  
 
-[[Gobind Gita]], author: Guru Gobind Singh, page 420
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]], author: Guru Gobind Singh, page 420
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[bathing.jpg]]

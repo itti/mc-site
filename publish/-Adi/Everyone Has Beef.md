@@ -5,6 +5,6 @@ No one is without conflict and dispute
 Show someone like this to me and I'll salute them  
   
 Guru Nanak Dev Ji 
-[[Adi]] Guru Granth Sahib: 1024
+[[PUBLISHED/publish/-Adi/Adi]] Guru Granth Sahib: 1024
 
 ![[guru nanak.jpeg]]

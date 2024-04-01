@@ -1,4 +1,4 @@
-Guru Gobind Singh, writing within the Sarbloh Granth, uses identical language in a line within the 33 Savaiye (33 ਸ੍ਵੈਯੇ), a composition within the [[Dasam]] Guru Granth Sahib. 
+Guru Gobind Singh, writing within the Sarbloh Granth, uses identical language in a line within the 33 Savaiye (33 ਸ੍ਵੈਯੇ), a composition within the [[Dasam Guru Granth Sahib/Dasam]] Guru Granth Sahib. 
 
 The 33 Svaiye concludes with the line:
 ਚੇਤ ਰੇ ਚੇਤ ਅਚੇਤ ਮਹਾ ਪਸੁ ਅੰਤ ਕੀ ਬਾਰਿ ਇਕੇਲੋ ਈ ਜੈ ਹੈ ॥੩੩॥ 
@@ -19,6 +19,6 @@ Without devotion your life is not fulfilled at all; to search and pursue anythin
 
 
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ ਭਾਗ 1, ਪਨਾ 173  
-[[Sarbloh]] Granth, Volume 1, page 173
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Volume 1, page 173
 
 ![[tiger.png]]

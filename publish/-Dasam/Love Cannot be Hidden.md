@@ -7,6 +7,6 @@ Love, as well as an odor, a cough, an itch, a murder, begging, and intoxication
 These seven cannot be hidden; regardless of one's efforts, in the end they become known to the entire world.
 
 ਦਸਮ ਗੁਰੂ ਗ੍ਰੰਥ ਸਾਹਿਬ, ਚਰਿਤ੍ਰੋਪਖਯਾਨ, ਚਰਿਤ੍ਰ 154
-[[Dasam]] Guru Granth Sahib, Charitropakhyan, Charitar 154
+[[PUBLISHED/publish/-Dasam/Dasam]] Guru Granth Sahib, Charitropakhyan, Charitar 154
 
 ![[love hidden.jpg]]

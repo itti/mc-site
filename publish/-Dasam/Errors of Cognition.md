@@ -14,5 +14,5 @@ In this theory, the entire world is not considered false *asat* because they do 
 
 To read more on anirvacaniya khyati vada, see [[Anirvachaniya]] and chapter four, verse 50, of the Vichar Sagar. 
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 [[Vedant]]

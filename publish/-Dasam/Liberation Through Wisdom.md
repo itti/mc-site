@@ -6,7 +6,7 @@ When one tries to realize the Divine through Yoga, then only one's body is made 
 
 
 Guru Gobind Singh⁣ ⁣
-[[Dasam]] Guru Granth Sahib, Ang 667⁣
+[[PUBLISHED/publish/-Dasam/Dasam]] Guru Granth Sahib, Ang 667⁣
 ਦਸਮ ਗੁਰੂ ਗ੍ਰੰਥ ਸਾਹਿਬ, ਅੰਗ 667
 
 ![[yoga.jpg]]

@@ -54,6 +54,6 @@ In this beautiful month of Katak, the Guru then thought, "Now let us go hunt".
 
 ਗੁਰਪ੍ਰਤਾਪ ਸੂਰਜ ਪ੍ਰਕਾਸ਼ ਗ੍ਰੰਥ, ਰੁੱਤ 2, ਅਧਿਆਇ 4, ਕ੍ਰਿਤ: ਮਹਾਂਕਵੀ ਸੰਤੋਖ ਸਿੰਘ (1843)
 Gurpratap [[Suraj]] Prakash Granth, Rut 2, Chapter 4, author: the Great Poet Santokh Singh (1843)
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[krishnavatar.jpg]]

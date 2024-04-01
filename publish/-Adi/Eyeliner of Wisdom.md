@@ -7,7 +7,7 @@ Anxiety is forgotten; unity is seen oh Nanak!
 By those eyes who have the eyeliner of wisdom applied 
 
 Guru Arjan Dev Ji
-[[Adi]] Guru Granth Sahib: 254 
+[[PUBLISHED/publish/-Adi/Adi]] Guru Granth Sahib: 254 
 
 
 ![[eye liner.jpeg]]

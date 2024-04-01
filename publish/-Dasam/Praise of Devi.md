@@ -1,4 +1,4 @@
-Below is a passage from the start of Krishnavatar *the section which describes the life story of Krishna*, from [[Dasam]] Sri Guru Granth Sahib Ji. For more information on the role of Devi in Sikh Dharam please view this video lecture: https://www.youtube.com/watch?v=KzpgNPYcdVc&t= 
+Below is a passage from the start of Krishnavatar *the section which describes the life story of Krishna*, from [[PUBLISHED/publish/-Dasam/Dasam]] Sri Guru Granth Sahib Ji. For more information on the role of Devi in Sikh Dharam please view this video lecture: https://www.youtube.com/watch?v=KzpgNPYcdVc&t= 
 
 ਅਥ ਦੇਵੀ ਜੂ ਕੀ ਉਸਤਤ ਕਥਨੰ ॥
 Now begins the description in praise of the goddess

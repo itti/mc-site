@@ -8,7 +8,7 @@ No one can grasp the limit of Your luster! The Vedas declare, "not this not this
 khoja thake sabha hī khujīā sura hāra pare hari hātha na āvai 
 The searchers and demigods have become tired in their search, being defeated, Hari was not grasped 
 
-Guru Gobind Singh in his Praise of the Immortal (Akāl Ustati) within the [[Dasam]] Granth
+Guru Gobind Singh in his Praise of the Immortal (Akāl Ustati) within the [[PUBLISHED/publish/-Dasam/Dasam]] Granth
 
 Image below from the Bṛhadāraṇyaka Upaniṣad (~700-600 BCE)
 ![[upanishad.jpeg]]

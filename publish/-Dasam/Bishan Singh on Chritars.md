@@ -3,6 +3,6 @@ Giani Bishan Singh, Granthi of the Khalsa College Amritsar from 1909-1939, write
 "Reading the Chritars my mind enters a state of great meditative absorption *samādhī*"
 However he recognized it as not p10s poetry but the poets in the darbar 
 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[Pasted image 20231014215542.png]]

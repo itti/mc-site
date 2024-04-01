@@ -13,7 +13,7 @@
 From the most ancient of times, and in all four ages, these enemies fight against each other; this is expounded upon in the Vedas and Shaastras. ⁣
 
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਕ੍ਰਿਤ: ਗੁਰੂ ਗੋਬਿੰਦ ਸਿੰਘ, ਭਾਗ 2, ਅੰਗ 580
-[[Sarbloh]] Granth, author: Guru Gobind Singh, Vol. II, page 580
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, author: Guru Gobind Singh, Vol. II, page 580
 
 Sarbloh Granth ends off with an allegorical battle between all the Virtues against the Vices, under the generals of Bibek *Discerning Intellect* fighting against Abibek *Ignorance*. This follows a similar framework with the very famous Advaita Vedanta play the Prabodhcandrodaya, also known as the Prabodh Chandra Natak (in Pandit Gulab Singh's version). Guru Gobind Singh writes another similar allegorical battle at the end of the Parasnath Katha in Rudravatar in Dasam Guru Granth Sahib, starting at page 697.  
   

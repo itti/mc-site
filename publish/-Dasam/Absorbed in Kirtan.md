@@ -10,7 +10,7 @@ All their sins being destroyed, they will not see any of the World *as Maya, as 
 ਮੁਝ ਅਬਿਨਾਸੀ ਕੇ ਬਿਖੈ ਪਰਾਪਤ ਹਆ ਸੋਇ ॥56॥ 
 Now I have obtained the state of being purely within the Deathless.  
 
-[[Gobind Gita]]: author, Guru Gobind Singh
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]]: author, Guru Gobind Singh
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[baba santa singh katha.JPG]]

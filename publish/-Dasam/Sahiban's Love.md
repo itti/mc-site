@@ -11,6 +11,6 @@ So tell me how will the love between us stay intact in such separation?
 
 ਕੌਨ ਹੀ ਕਾਜ ਸੁ ਜੀਬੋ ਸਖੀ ਜਬ ਪ੍ਰੀਤਿ ਬਧ੍ਯੋ ਨਿਜੁ ਮੀਤ ਦਹੈਗੋ ॥੧੧॥
 Tell me friend, what will I live on for while I'm bound and burning with love for my beloved?
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[Photograph_of_a_fresco_illustrating_Mirza_being_killed_by_Sahiba’s_brothers_(Mirza_Sahiban_folktale)_at_Palkiana_Sahib_near_Tarn_Taran,_taken_in_1971.jpg]]

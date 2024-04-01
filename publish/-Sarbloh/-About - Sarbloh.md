@@ -4,4 +4,4 @@ An upcoming podcast lecture will explore the Sarbloh Granth in more detail - sta
 
 
 
-![[Summary of Sarbloh Granth]]
+![[PUBLISHED/publish/-Sarbloh/Summary of Sarbloh Granth]]

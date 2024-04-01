@@ -24,11 +24,11 @@ Brother, In all directions, on the earth or in the sky, all of this is the One K
 ਦੇਖਨ ਸੁਨਨ ਅਰ ਸਭ ਜੋ ਅਹੈ ॥ ਸੋ ਸਭ ਏਕ ਗੋਬਿੰਦ ਹੀ ਲਹੈ ॥
 Whatever you listen to or see, all of that is the One Gobind you are experiencing.
 
-[[Gobind Gita]] page 437 - 16th chapter
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]] page 437 - 16th chapter
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[p10 and punj.JPG]]
 
-[[Gobind Gita]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Gobind Gita]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 [[Vedant]]

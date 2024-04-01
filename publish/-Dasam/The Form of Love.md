@@ -5,6 +5,6 @@ You belong to no country, no garb, you have no form, markers or attachment
 But wherever, from any side or direction, you are spread out in the form of Love - Guru Gobind Singh: 
 
 - Jāp Sāhib, ਜਾਪ ਸਾਹਿਬ
-- [[Dasam]] 
+- [[PUBLISHED/publish/-Dasam/Dasam]] 
 
 ![[jaap love.jpeg]]

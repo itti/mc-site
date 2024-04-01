@@ -13,5 +13,5 @@ Devote yourself to love immersed worship, service to the Saints, and the utteran
 Wear this attire which shall carry you across this ocean like world; and impart this same teaching to your fellow Gursikhs.  
   
 ਸਰਬਲੋਹ ਗ੍ਰੰਥ, ਭਾਗ 2, ਪਨਾ 683  
-[[Sarbloh]] Granth, Volume Two, Page 683
+[[PUBLISHED/publish/-Sarbloh/Sarbloh]] Granth, Volume Two, Page 683
 ![[be humble.png]]

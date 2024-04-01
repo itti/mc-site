@@ -17,4 +17,4 @@ Praise of Akaal, the Deathless
 Chakkradhar Charitr Chaaru Chandrika *Commentary of Jaap Sahib*, author: Takhur Nihal Singh (1800s) 
 
 ![[hanuman.png]]
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]

@@ -5,6 +5,6 @@ Those who have never fought in the battlefield, never given charity or praised *
 I'm not sure who has told Death that those people can still be found residing in their village. ⁣ 
 
  ਬਚਿਤ੍ਰ ਨਾਟਕ, ਦਸਮ ਗੁਰੂ ਗ੍ਰੰਥ ਸਾਹਿਬ ਜੀ, ਅੰਗ ੭੨⁣ 
- Bachitar Natak, [[Dasam]] Guru Granth Sahib Ji, Page 72
+ Bachitar Natak, [[PUBLISHED/publish/-Dasam/Dasam]] Guru Granth Sahib Ji, Page 72
 
 ![[fighting.jpg]]

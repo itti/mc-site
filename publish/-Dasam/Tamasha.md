@@ -13,6 +13,6 @@ Grabbing the sword I'll kill the enemies and manifest righteousness!
 
 Uggardanti
 Guru Gobind Singh 
-[[Dasam]]
+[[PUBLISHED/publish/-Dasam/Dasam]]
 
 ![[p10 new new.jpeg]]

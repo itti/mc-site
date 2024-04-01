@@ -13,7 +13,7 @@ Her waist is slim like that of a lion(8), *the rhythm in* her stride is *gracefu
 Shiva's wife *Chandi*(11), with a sword(12) in hand, riding atop a tiger(13), is enchanting like the Sun(14).
 
 ਦਸਮ ਗੁਰੂ ਗ੍ਰੰਥ ਸਾਹਿਬ, ਅੰਗ 82
-[[Dasam]] Guru Granth Sahib, page 82
+[[PUBLISHED/publish/-Dasam/Dasam]] Guru Granth Sahib, page 82
 
 The word Hari is used for: 1) moon, 2) dispelling, 3) surpassing/stealing, 4) Shiva, 5) lotus flowers, 6) bow, 7) arrows, 8) lion, 9) elephant, 10) Kamdevta, 11) Chandi, 12) sword, 13) tiger, 14) Sun
 
