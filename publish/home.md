@@ -2,6 +2,8 @@
 title: Welcome
 excerpt: To first steps into pre colonial Sikh texts
 ---
+![[Patreon Banner.jpg]]
+
 Latest Posts:
 
 [[Removal of Traditions by Singh Sabha]]
